@@ -39,7 +39,9 @@
   <p>⋆🐾° <b>Mostly offtab , w2i</b></p>
   <p>⋆🐾° <b>still trying to figure out my tritype , but i' am ISFP-A</b></p>
   <p>⋆🐾° <b>fav ship is mortycest!! specifically em x msmith
-  <p>⋆🐾° <b>no , i dont support rickorty, nor am i a darkshipper/proshipper/comshipper/whatever-the-fuck-negative-shipshipper. 
+  <p>⋆🐾° <b>no , i dont support rickorty, nor am i a darkshipper/proshipper
+   
+   /comshipper/whatever-the-fuck-negative-shipshipper. 
    
    pls tell if following a supporter/shipper OF the kind listed.</b></p>
 
@@ -103,6 +105,8 @@
 
 all of the blinkies below and above
 are serious >< im not being an edgy asshole.
+
+
 Search up what sfw age regression is
 
 b4 flaming me for it. thx ^^!
