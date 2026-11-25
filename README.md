@@ -101,7 +101,7 @@
 
 all of the blinkies below and above
  are serious >< im not being an edgy asshole.
-
+Search up what sfw age regression is b4 flaming me for it. thx ^^!
 
 
 
