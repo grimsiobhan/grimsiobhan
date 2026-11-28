@@ -148,8 +148,16 @@ b4 flaming me for it. thx ^^!
 <img width="150" height="20" alt="tumblr_d032ea6deeafd0f61dfedeac97d153a1_e3212f9c_250" src="https://github.com/user-attachments/assets/d2234753-8c95-40cc-a3be-9d347da77e29" /><img width="150" height="20" alt="tumblr_30ed8ca1ba2b7fd2920b11eb7aaa4588_ce540fc0_250" src="https://github.com/user-attachments/assets/3eb258ca-bedf-418a-b2d5-db87dd6d762d" />
  <img width="150" height="20" alt="tumblr_3af5bbeb01a66cef8a47b0df083fc010_a6bdaf88_250" src="https://github.com/user-attachments/assets/307cca7e-70bd-45c9-9283-2e45f67bd067" />
 
+ <br>
 
+  
+  <details>
+    <summary>ᯠ <b>userboxes i relwate 2. user will be vewy happi if u open dis.ᐟ</b>  ᯄ꠹</summary>
+    <br>
 
-
+<img width="1536" height="2048" alt="download" src="https://github.com/user-attachments/assets/5d6fd1f6-ac4a-4208-ae65-27abe74d6624" />
+<img width="1536" height="2048" alt="download" src="https://github.com/user-attachments/assets/e965ea78-0700-4e05-8246-34fa7c4193a1" />
+<img width="1536" height="2048" alt="download" src="https://github.com/user-attachments/assets/d0f1ae67-db75-436d-9435-a15a956db587" />
+more 2 addd!!!
 
 </div>
